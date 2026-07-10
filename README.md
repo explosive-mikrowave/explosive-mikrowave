@@ -4,12 +4,12 @@
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1453659594885824655/1525040094078173264/1003229354-removebg-preview.png?ex=6a51efc4&is=6a509e44&hm=a467f6f50d94eaed0a7fd41665f4ecc448a3fa304f118fd338a4faa80e891db3&) 
 
-mikkov reznoz ╋── they ／ them ⟡ non-binary □ ID/ENG only with bad grammar
+mikkov reznov ╋── they ／ them ⟡ non-binary □ ID/ENG only with bad grammar
 
 (i) ；About - a niche artist that are just exist and enjoys to do art n playing games.
 In socializing, I'm a shy, awkward person but somehow I'll go on with the vibe of how you interact with me because I am always open for any topics! And, I'm a distant/avoidant person, I do enjoy being on my own sometimes. There is also may be a chance you can see me hyping on something that were distracting me from a reality.
 
-(ii) ；Warnings - had sensitive heart/feeling, I can get too emotional nor turn to be defensive. I do love to say a sarcastic words/jokes that might make you offended! (please ask or warn me if do). I also enjoys saying a certain curse words in some ways. I am a adult, and please consider yourself to be smart at communicating! + strictly DNi if you're a pedo and a person who cannot respect/understanding my boundaries.
+(ii) ；Warnings - had sensitive heart/feeling, I can get too emotional nor turn to be defensive. I do love to say a sarcastic words/jokes that might make you offended! (please ask or warn me if do). I also enjoys saying a certain curse words in some ways. I am a adult, and please consider yourself to be smart at communicating! + strictly DNi + block if you're a pedo and a person who cannot respect/understanding my boundaries.
 
 (iii) ；Likes/Love - playing a games such as Pony town, Reverse1999, Roblox. (feel free to add me if you want)
 choco chips ice cream, gacoan noodle, milk, fries, fried rice, fried chicken!
