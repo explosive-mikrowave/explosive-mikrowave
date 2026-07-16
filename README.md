@@ -21,7 +21,8 @@ mikkov reznov ╋── they ／ them ⟡ non-binary □ ID/ENG only with bad gr
 
 (iv) ；fictkin :
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527305788714913843/image0.jpg?ex=6a5a2ddb&is=6a58dc5b&hm=cabae1c45c0dc94ea1a4d8d29f6916fdf5c291a2770aa163b641322eee38073a&.gif#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527305045777977405/tumblr_1d475c432e2c1285f6608c62da003b35_032a2d13_250.png?ex=6a5a2d2a&is=6a58dbaa&hm=9cbec3944b91eb62293c7b197414fd75fbe13f93d2ea506aea864b0c6391932d&#right)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527305788714913843/image0.jpg?ex=6a5a2ddb&is=6a58dc5b&hm=cabae1c45c0dc94ea1a4d8d29f6916fdf5c291a2770aa163b641322eee38073a&.gif) 
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527305045777977405/tumblr_1d475c432e2c1285f6608c62da003b35_032a2d13_250.png?ex=6a5a2d2a&is=6a58dbaa&hm=9cbec3944b91eb62293c7b197414fd75fbe13f93d2ea506aea864b0c6391932d&#right)
 
 
 creds to: rofag, pxrce-line, quirtle-squads, helpm3lma0, my3rz, on tumblr
