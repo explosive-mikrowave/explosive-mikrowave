@@ -9,7 +9,8 @@
 
 mikkov reznov ╋── they ／ them ⟡ non-binary □ ID/ENG only with bad grammar
 
-(i) ；Warnings - had sensitive heart/feeling, can get too emotional/turn to be defensive, love to say a sarcastic words/jokes that might make you offended (please ask or warn me if do). enjoys saying a certain curse words in some ways. (strictly DNi + block if you're a pedo and a person who cannot respect/understanding my boundaries).
+(i) ；Warnings - love to say a sarcastic words/jokes that might make you offended (please ask or warn me if do). enjoys saying a certain curse words in some ways. 
+(strictly DNi + block if you're a pedo and a person who cannot respect/understanding my boundaries).
 
 
 (ii) ；playing other games such as Pony town, Reverse1999, Roblox. (feel free to add me if you want)
@@ -17,8 +18,8 @@ mikkov reznov ╋── they ／ them ⟡ non-binary □ ID/ENG only with bad gr
 
 (iv) ；My f/o / certified yume (hypershare) :
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527286681919688745/12532133_2f981.gif?ex=6a5a1c10&is=6a58ca90&hm=137b17a4fafad36258a04dfc6cf186e290a5dddc553da2909b778371aa7daf16&.gif{300x100}#left) 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527286682217480333/captain-trotter-block-tales.gif?ex=6a5a1c10&is=6a58ca90&hm=b08b671bab5c234041566c4697df0277a8dbaaad4574596f31bb82dc4b630316&.gif{300x100}#right)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527292922813353994/tumblr_4cefd65db6265dbb15c28bb5c5b78f7d_bbdae404_100.gif?ex=6a5a21e0&is=6a58d060&hm=7ed611d612831df6384fa8ac4027f74f4be2ffc3268dfdac6df4dd42e27c49a4&.gif#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527293363714523206/tumblr_934ffb4db7e987ac25e91f737d81820c_5d94355e_100.png?ex=6a5a2249&is=6a58d0c9&hm=dab88902ae6fa97167e968e33e56f4dff8c2271e601a6d77de15555af23a276b&.gif#right)
+creds to: rofag & squirtle-squads on tumblr
 
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1453659594885824655/1525040094078173264/1003229354-removebg-preview.png?ex=6a51efc4&is=6a509e44&hm=a467f6f50d94eaed0a7fd41665f4ecc448a3fa304f118fd338a4faa80e891db3&) 
