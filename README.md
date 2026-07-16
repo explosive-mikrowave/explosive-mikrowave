@@ -21,9 +21,9 @@ mikkov reznov ╋── they ／ them ⟡ non-binary □ ID/ENG only with bad gr
 
 (iv) ；fictkin :
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527306794764861630/tumblr_89cdef3fba9f09b01ec9058f2c8575a3_0527e5d0_100.webp?ex=6a5a2ecb&is=6a58dd4b&hm=cdb8d3a0f51742e0987bce84113586c17e40ffc5247071242a15c962af133568&#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527308377703710771/tumblr_3757635c4f6208792e5c7e28eb20add9_0d986e2a_100.gif?ex=6a5a3045&is=6a58dec5&hm=5e538c29985b5129741f108fea3d05914bc5eed8dedd14e807f36880ee12a262&$right)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527309078278307872/tumblr_8f5456898c51241c5f03a4e66e61df6c_7760fd0c_100.gif?ex=6a5a30ec&is=6a58df6c&hm=c378eddb7df7d456eb272bf2db8110c5f87e2cf830104e4be9991a65cc3c5b3d&#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527306794764861630/tumblr_89cdef3fba9f09b01ec9058f2c8575a3_0527e5d0_100.webp?ex=6a5a2ecb&is=6a58dd4b&hm=cdb8d3a0f51742e0987bce84113586c17e40ffc5247071242a15c962af133568&#right) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527308377703710771/tumblr_3757635c4f6208792e5c7e28eb20add9_0d986e2a_100.gif?ex=6a5a3045&is=6a58dec5&hm=5e538c29985b5129741f108fea3d05914bc5eed8dedd14e807f36880ee12a262&#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527310370803417178/tumblr_b4e69e929df16965f3ef6c5551bb8316_668aeb29_100.gif?ex=6a5a3220&is=6a58e0a0&hm=aec13caf3e89b9d392dea6f685e4c78b4b53667abd355014d3190c4e2849892a&#right) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527311058778460160/tumblr_1cf24076da0e3d99a398727b4178aadc_c00623d8_100.png?ex=6a5a32c4&is=6a58e144&hm=d4b7982f73c3610ce213261e7fa2a1c75390072c38f3ca2e81cfaf805b07c3ec&#left)
 
-creds to: rofag, pxrce-line, quirtle-squads, helpm3lma0, my3rz, on tumblr
+creds to: rofag, pxrce-line, quirtle-squads, helpm3lma0, my3rz, neosprites, knockoutfangirl, keetakatze, ivy-vinezz, on tumblr
 
 
 *"Speeding through the night, maybe you’ll outrun the morning"*
