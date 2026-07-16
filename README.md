@@ -5,15 +5,17 @@
 ![Alt Tag](https://cdn.discordapp.com/attachments/1453659594885824655/1525040094078173264/1003229354-removebg-preview.png?ex=6a51efc4&is=6a509e44&hm=a467f6f50d94eaed0a7fd41665f4ecc448a3fa304f118fd338a4faa80e891db3&) 
 
 
-[STRAWPAGE](https://mkkvrz.straw.page)
+[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mkkvrz?igsh=MWt2M2VzaDh4ZmJicQ==)
 
 mikkov reznov ╋── they ／ them ⟡ non-binary □ ID/ENG only with bad grammar
 
 (i) ；Warnings - had sensitive heart/feeling, can get too emotional/turn to be defensive, love to say a sarcastic words/jokes that might make you offended (please ask or warn me if do). enjoys saying a certain curse words in some ways. (strictly DNi + block if you're a pedo and a person who cannot respect/understanding my boundaries).
-(ii) ；playing other games such as Pony town, Reverse1999, Roblox. (feel free to add me if you want)
-(iv) ；My f/o / certified yume (hypershare) & arts
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527286681919688745/12532133_2f981.gif?ex=6a5a1c10&is=6a58ca90&hm=137b17a4fafad36258a04dfc6cf186e290a5dddc553da2909b778371aa7daf16&.gif#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527286682217480333/captain-trotter-block-tales.gif?ex=6a5a1c10&is=6a58ca90&hm=b08b671bab5c234041566c4697df0277a8dbaaad4574596f31bb82dc4b630316&.gif#right)
+(ii) ；playing other games such as Pony town, Reverse1999, Roblox. (feel free to add me if you want)
+
+(iv) ；My f/o / certified yume (hypershare) :
+
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527286681919688745/12532133_2f981.gif?ex=6a5a1c10&is=6a58ca90&hm=137b17a4fafad36258a04dfc6cf186e290a5dddc553da2909b778371aa7daf16&.gif{128x128}) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527286682217480333/captain-trotter-block-tales.gif?ex=6a5a1c10&is=6a58ca90&hm=b08b671bab5c234041566c4697df0277a8dbaaad4574596f31bb82dc4b630316&.gif#right)
 
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1453659594885824655/1525040094078173264/1003229354-removebg-preview.png?ex=6a51efc4&is=6a509e44&hm=a467f6f50d94eaed0a7fd41665f4ecc448a3fa304f118fd338a4faa80e891db3&) 
