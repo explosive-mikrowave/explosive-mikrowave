@@ -20,21 +20,6 @@ they ／ them ! non-binary ᨀ ID/ENG with bad grammar
 (iii) ；my f/o / certified yume (hypershare) :
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527292922813353994/tumblr_4cefd65db6265dbb15c28bb5c5b78f7d_bbdae404_100.gif?ex=6a5a21e0&is=6a58d060&hm=7ed611d612831df6384fa8ac4027f74f4be2ffc3268dfdac6df4dd42e27c49a4&.gif#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527293363714523206/tumblr_934ffb4db7e987ac25e91f737d81820c_5d94355e_100.png?ex=6a5a2249&is=6a58d0c9&hm=dab88902ae6fa97167e968e33e56f4dff8c2271e601a6d77de15555af23a276b&.gif#right) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527292922813353994/tumblr_4cefd65db6265dbb15c28bb5c5b78f7d_bbdae404_100.gif?ex=6a5a21e0&is=6a58d060&hm=7ed611d612831df6384fa8ac4027f74f4be2ffc3268dfdac6df4dd42e27c49a4&.gif#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527293363714523206/tumblr_934ffb4db7e987ac25e91f737d81820c_5d94355e_100.png?ex=6a5a2249&is=6a58d0c9&hm=dab88902ae6fa97167e968e33e56f4dff8c2271e601a6d77de15555af23a276b&.gif#right) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527292922813353994/tumblr_4cefd65db6265dbb15c28bb5c5b78f7d_bbdae404_100.gif?ex=6a5a21e0&is=6a58d060&hm=7ed611d612831df6384fa8ac4027f74f4be2ffc3268dfdac6df4dd42e27c49a4&.gif#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527293363714523206/tumblr_934ffb4db7e987ac25e91f737d81820c_5d94355e_100.png?ex=6a5a2249&is=6a58d0c9&hm=dab88902ae6fa97167e968e33e56f4dff8c2271e601a6d77de15555af23a276b&.gif#right)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-*⠀⢀⣀⣶⣶⣶⣀⡀⢀⣰⣶⣶⣶⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⣤⡼⠿⠀⠀⠸⠿⣥⣼⠿⠁⡄⢸⣿⣤⡄⠀⠀⠀⠀⠀⠀⠀⠀
-⣿⡇⠀⠀⠀⠀⠀⠛⠃⢰⠀⠁⠈⠀⣿⡇⠀⠀⠀⠀⠀⠀⠀⠀
-⠿⢇⣀⠀⠀⠀⠀⠀⡀⠠⠀⠇⢸⣍⠿⠇⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠘⠛⣶⣶⣶⠀⠀⠁⠀⣶⣶⣾⠛⠂⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠉⠉⢹⣿⣀⣸⣿⠋⠉⠉⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠛⠋⠀⠀⠀⠀⠀
-           ⢀⣀⣶⣶⣶⣀⡀⢀⣰⣶⣶⣶⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-           ⣤⡼⠿⠀⠀⠸⠿⣥⣼⠿⠁⡄⢸⣿⣤⡄⠀⠀⠀⠀⠀⠀⠀⠀
-          ⣿⡇⠀⠀⠀⠀⠀⠛⠃⢰⠀⠁⠈⠀⣿⡇⠀⠀⠀⠀⠀⠀⠀⠀
-          ⠿⢇⣀⠀⠀⠀⠀⠀⡀⠠⠀⠇⢸⣍⠿⠇⠀⠀⠀⠀⠀⠀⠀⠀
-          ⠀⠘⠛⣶⣶⣶⠀⠀⠁⠀⣶⣶⣾⠛⠂⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀          ⠀⠉⠉⢹⣿⣀⣸⣿⠋⠉⠉⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀          ⠀⠀⠛⠋⠀⠀⠀⠀*⠀
 
 (iv) ；fictkin :
 
@@ -45,21 +30,8 @@ creds to: glorifiedturkey, moonkn1ghtz, rofag, squirtle-squads, helpm3lma0, my3r
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527302861879382037/image0.gif?ex=6a5a2b22&is=6a58d9a2&hm=244016e0679d6ef99dd1426628632c27255d3c15ee3a641c8f8f47321dcd5e58&)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-</div>**⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-</div>⠀⠀⠀⠀⠀⠀⠀⣀⡤⠀⣻⢿⠟⠷⢾⣿⣠⡦⢀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-</div>⠀⠀⠀⠀⢀⠀⠀⠀⠂⠀⠀⠀⠀⠀⢈⣉⣀⠀⠀⠈⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-</div>⠀⠀⠀⠀⠈⡀⠏⠀⠀⣀⣤⣶⣿⣿⣿⣿⠿⠿⣿⣶⡄⠀⠀⠀⠀⠀⠀⠀⠀⠀
-</div>⠀⠀⠀⠀⠐⠗⢀⣴⣿⣿⣿⣿⣿⡿⣫⣖⣿⣹⣮⢻⡇⢒⢦⠀⠀⠀⠀⠀⠀⠀
-</div>⠀⠀⠀⠀⠀⠀⢿⡿⠿⣿⢿⣿⣿⢱⣿⣿⣿⣿⡿⣸⣷⠸⢿⠀⠀⠀⠀⠀⠀⠀
-</div>⠀⠀⠀⠀⠀⢈⣴⣿⣯⣿⣎⠿⠸⣿⣿⡿⢟⣵⢻⣿⡄⡿⠀⠀⠀⠀⠀⠀⠀
-</div>⠀⠀⠀⠀⠀⠀⢈⢿⣿⣿⣿⡟⣴⣼⣶⣶⢺⣿⣿⡏⣿⠃⢀⣀⡀⠀⠀⠀⠀⠀
-</div>⠀⠀⠀⠀⠀⠀⠀⢇⠼⣭⣷⣾⢿⣛⠥⠾⠿⠿⣿⠏⣴⣾⡷⡿⣾⣥⡄⠀⠀⠀
-</div>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠹⣿⡟⢉⣴⣾⣿⣿⣷⣤⣸⣿⣿⣿⣿⣿⣾⣷⠀⠀⠀
-</div>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⢰⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⠃⠀⠀
-</div>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡀⢸⣿⡿⢿⣿⣿⣿⣿⣿⣿⣿⣿⣿⠋⠴⢆⣄⠀⠀
-</div>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣿⠌⢁⠶⣣⣤⠝⢿⣿⣿⣿⣿⣿⡇⠾⠟⣼⣿⠀⠀
-</div>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠂⠸⠷⠮⠁⠾⠇⠿⠿⠿⠿⠿⠆⠻⠳⠿⠃⠀⠀**
-
+<div class="slider-container">
+  <div class="sliding-text">This text will slide smoothly across the screen!</div>
+</div>
 
 ***
