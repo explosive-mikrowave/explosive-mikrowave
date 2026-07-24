@@ -12,7 +12,7 @@ mikkov reznov ╋── they ／ them ⟡ non-binary □ ID/ENG with bad grammar
 (strictly DNi + block if you're a pedo, 13- and a person who cannot respect/understanding my boundaries).
 
 
-(ii) ；playing other games such as Pony town, Reverse1999, Roblox. (feel free to add me if you want)
+(ii) ；playing other games such as Pony town, Reverse1999, Roblox, CRK, CROB, Minecraft, InvincibleGtG (feel free to add me if you want)
 
 
 (iii) ；my f/o / certified yume (hypershare) :
