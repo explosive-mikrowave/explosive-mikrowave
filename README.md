@@ -8,8 +8,8 @@
 
 mikkov reznov ╋── they ／ them ⟡ non-binary □ ID/ENG with bad grammar
 
-(i) ；Warnings - love to say a sarcastic words/jokes that might make you offended (please ask or warn me if do). enjoys saying a certain curse words in some ways. 
-(strictly DNi + block if you're a pedo and a person who cannot respect/understanding my boundaries).
+(i) ；Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful!
+(strictly DNi + block if you're a pedo, 13- and a person who cannot respect/understanding my boundaries).
 
 
 (ii) ；playing other games such as Pony town, Reverse1999, Roblox. (feel free to add me if you want)
