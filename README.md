@@ -9,7 +9,8 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 *❞  🪗 ) ﹫mikkov reznov ／ mimi ／ kov 𝄚𝅦𝄚𝄞*
 
 they ／ them ( non-binary & genderfluid ) infp-t ／ intp
-! grayromance , Bi ᨀ ID/ENG with bad grammar
+
+*! grayromance , Bi ᨀ ID/ENG with bad grammar*
 
 
 (i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user had fragile heart & anger-issue!**
