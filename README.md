@@ -1,4 +1,4 @@
-![Alt Tag](https://pin.it/4zIgWT4Wq.jpg)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1530566734065696869/81e96b83d852e80a90ff60b36d95f92d.jpg?ex=6a660ad9&is=6a64b959&hm=1a71276cc21457e17789adfc8517fa870a6c17ef5a0b2bf18afa7c00ad2459e9&)
 
 *"Speeding through the night, maybe you’ll outrun the morning"*
 
