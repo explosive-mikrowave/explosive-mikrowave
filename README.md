@@ -1,4 +1,5 @@
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1530564957668900954/giphy.gif?ex=6a660932&is=6a64b7b2&hm=d3e3b803d4773ce97535d477854c35832e85322e8d806b1fea6c08ad8cab03eb&.gif)
+![Alt Tag](https://pin.it/4zIgWT4Wq.jpg)
+
 *"Speeding through the night, maybe you’ll outrun the morning"*
 
 _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mkkvrz?igsh=MWt2M2VzaDh4ZmJicQ==) . [TIKTOK](tiktok.com/@mkkvrz) . Atabook wip !**_
