@@ -1,4 +1,4 @@
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1540250737739694120/dd4e021c64cdd2954904ab81f9362f89.jpg?ex=6a8945c8&is=6a87f448&hm=c48414f1d92ba2fe0e3f1c966c97ff813b5e3c4d811ac29f03240c8f1cc53db6&)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1530564957987672084/giphy_1.gif?ex=6a88f8f2&is=6a87a772&hm=0788b6c31590c0a11fe3fd63872269ff6e41960b77e91eefd5b10eef89f6f138&.gif)
 
 *"Speeding through the night, maybe you’ll outrun the morning"*
 
