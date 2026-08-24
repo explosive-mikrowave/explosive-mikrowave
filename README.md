@@ -6,20 +6,18 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527297890912043199/image0.png?ex=6a88f3c1&is=6a87a241&hm=f996b52e37b7fbbe93badc2c613b560d61ece26f6cf88ceeb87a7636b81ca6de&)
 
-*❞  🪗 ) ﹫mikkov reznov ／ mimi ／ kov 𝄚𝅦𝄚𝄞*
-
-they ／ them ( non-binary & genderfluid ) infp-t ／ intp
-
-*! grayromance , Bi ᨀ ID/ENG with bad grammar*
+*𝄚𝅦𝄚𝄞 ﹫mikkov reznov ／ mimi ／ kov* they ／ them ( non-binary & fluid ) infp-t ／ intp
+*ID/ENG with bad grammar*
 
 
-(i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user had fragile heart & anger-issue!**
-
+(i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user had fragile heart & anger-issue.**
 **(strictly DNi + block if you're a pedo, basic criteria, 14- / immature minors and a person who cannot respect/understanding my boundaries).**
 
 
-(ii) ；i am friendly! jokes a lot. and i also playing other games such as Pony town, Reverse1999, Roblox, CRK, CROB, Minecraft, InvincibleGtG 
+(ii) ；i am friendly! jokes a lot. and i also playing other games such as Pony town, Reverse1999, Roblox, CRK, CROB, Minecraft, animal crossimg.
 (feel free to add me if you want, but via discord)
+
+(iii) ；fandoms? invincible, Guts and Blackpowder/Napowars, Call of duty bo, co, mw, x-men, tf2, reverse1999, and more. 
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1525708934739132576/edward-richtofen-richtofen.gif?ex=6a891aac&is=6a87c92c&hm=533180042b481099881a1267f9a94428467e4f1e4ea1bf14a3f85c9cc927e978&.gif)
 
