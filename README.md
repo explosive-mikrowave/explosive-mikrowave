@@ -17,7 +17,7 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 (ii) ；i am friendly! jokes a lot. and i also playing other games such as Pony town, Reverse1999, Roblox, CRK, CROB, Minecraft, animal crossimg.
 (feel free to add me if you want, but via discord)
 
-(iii) ；fandoms? invincible, Guts and Blackpowder/Napowars, Call of duty bo, co, mw, x-men, tf2, reverse1999, and more. 
+(iii) ；**fandoms ? -** invincible, Guts and Blackpowder/Napowars, Call of duty bo, co, mw, x-men, tf2, reverse1999, rdr2, House MD, Block Tales and more. 
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1525708934739132576/edward-richtofen-richtofen.gif?ex=6a891aac&is=6a87c92c&hm=533180042b481099881a1267f9a94428467e4f1e4ea1bf14a3f85c9cc927e978&.gif)
 
