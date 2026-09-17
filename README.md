@@ -1,4 +1,4 @@
-![Alt Tag](https://images-ext-1.discordapp.net/external/1If62KlKRWleluR_y922cFQrqmV4oGAD2IIHyi-y8tI/https/static.klipy.com/ii/935d7ab9d8c6202580a668421940ec81/08/d9/xbQo65xZ.mp4)
+![Alt Tag](https://tenor.com/id/view/omni-man-omni-man-meme-omni-man-hmm-omni-man-are-you-sure-invincible-gif-3439950902772890794.gif)
 *"Speeding through the night, maybe you’ll outrun the morning"*
 
 _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mkkvrz?igsh=MWt2M2VzaDh4ZmJicQ==) . [ATABOOK](https://mikrowave.atabook.org/)**_
