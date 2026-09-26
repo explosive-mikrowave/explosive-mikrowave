@@ -2,7 +2,7 @@
 
 *"Speeding through the night, maybe you’ll outrun the morning"*
 
-_**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mkkvrz?igsh=MWt2M2VzaDh4ZmJicQ==) . [TIKTOK](tiktok.com/@mkkvrz) . [ATABOOK](https://mikrowave.atabook.org/)**_
+_**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mkkvrz?igsh=MWt2M2VzaDh4ZmJicQ==) . [ATABOOK](https://mikrowave.atabook.org/)**_
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527297890912043199/image0.png?ex=6aac8c41&is=6aab3ac1&hm=454cf0de17f26603a4929030c87d05945509248c595867daf0bba642a3660559&)
 
