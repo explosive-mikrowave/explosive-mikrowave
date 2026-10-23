@@ -7,12 +7,12 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165490917015632/tumblr_f48e257ca72d20d1c7cca2ce2395cf22_d707be39_2048.png?ex=6adca2cf&is=6adb514f&hm=afc58db84dcee3381a465707d1ef7b4a133053a0bbf66752d58ff9c271585088&)
 
 *𝄚𝅦𝄚𝄞 non-binary & fluid — infp-t ／ intp
-*ID/ENG with bad grammar* ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563168592621731840/tumblr_9ca805b216506270df53ea9a23c80b28_6957fa96_100.gif?ex=6adca5b2&is=6adb5432&hm=bf796f9d1c13a7394f6ce01f2c2eb8fe08fe75cd44352e45223ac1c0337ed33b&#left)
+*ID/ENG with bad grammar*
 
-
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563172609322123436/tumblr_2dce2b8e0604b02fd3e544bb2faf59d0_33092d26_75.gif?ex=6adca970&is=6adb57f0&hm=078a5aadf441f107d81c78fa38784a2beef1ba438d1e5a9a62dfbae86976db48&)
 
 (i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user have fragile heart, split personality, avoidant & anger-issue.**
-**(strictly DNi + block if you're basic criteria, 14- / immature minors and a person who cannot respect/my boundaries breaker).**
+**(strictly DNi + block if you're basic criteria, 14- / immature minors and a person who cannot respect/my boundaries breaker).** ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563168592621731840/tumblr_9ca805b216506270df53ea9a23c80b28_6957fa96_100.gif?ex=6adca5b2&is=6adb5432&hm=bf796f9d1c13a7394f6ce01f2c2eb8fe08fe75cd44352e45223ac1c0337ed33b&#left)
 
 
 (ii) ；i am friendly! jokes a lot. and i also playing other games such as Pony town, Reverse1999, Roblox, CRK, CROB, Minecraft, animal crossimg. (feel free to add me if you want)
