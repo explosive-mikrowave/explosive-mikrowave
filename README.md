@@ -21,6 +21,6 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165491491504220/tumblr_c7b23e04cf40b6ec3fbfef7a85988ff1_41168c02_1280.png?ex=6adca2cf&is=6adb514f&hm=870bfbd3fe8d4437b84007961ad7988db6173de2b83e6304eaf02e2d97f87cfa&)
 
-![Alt Tag](https://www.tumblr.com/search/buttons?src=typed_query.gif)
+![Alt Tag](https://www.tumblr.com/search/buttons?src=typed_query)
 
 _creds: Creatorhangar on tumblr_
