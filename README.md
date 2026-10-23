@@ -1,4 +1,4 @@
-![Alt Tag](https://tenor.com/id/view/omni-man-omni-man-meme-omni-man-hmm-omni-man-are-you-sure-invincible-gif-3439950902772890794.gif)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563163675336900728/fennec-fox-wild-animal.gif?ex=6adca11e&is=6adb4f9e&hm=9354bcb4f9017e8782573c5eafeef54e6b66ff3279720cad3ca2a6afe60eec61&.gif)
 
 *"Speeding through the night, maybe you’ll outrun the morning"*
 
@@ -6,17 +6,17 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1527297890912043199/image0.png?ex=6aac8c41&is=6aab3ac1&hm=454cf0de17f26603a4929030c87d05945509248c595867daf0bba642a3660559&)
 
-*𝄚𝅦𝄚𝄞 ﹫mikkov reznov ／ mimi ／ kov* 
-they ／ them ( non-binary & fluid ) infp-t ／ intp
+*𝄚𝅦𝄚𝄞 non-binary & fluid — infp-t ／ intp
 *ID/ENG with bad grammar*
 
 
-(i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user had fragile heart & anger-issue.**
-**(strictly DNi + block if you're a pedo, basic criteria, 14- / immature minors and a person who cannot respect/understanding my boundaries).**
+(i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user have fragile heart, split personality, avoidant & anger-issue.**
+**(strictly DNi + block if you're basic criteria, 14- / immature minors and a person who cannot respect/my boundaries breaker).**
 
 
 (ii) ；i am friendly! jokes a lot. and i also playing other games such as Pony town, Reverse1999, Roblox, CRK, CROB, Minecraft, animal crossimg.
-(feel free to add me if you want, via discord)
+(feel free to add me if you want)
+
 
 (iii) ；**fandoms ? -** invincible, Ghost in the Cell, Guts and Blackpowder/Napowars, Call of duty bo, co, mw, x-men, tf2, reverse1999, rdr2, House MD, Block Tales and more. 
 
