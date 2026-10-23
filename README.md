@@ -15,7 +15,7 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 **(strictly DNi + block if you're basic criteria, 14- / immature minors and a person who cannot respect/my boundaries breaker).** ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563168592621731840/tumblr_9ca805b216506270df53ea9a23c80b28_6957fa96_100.gif?ex=6adca5b2&is=6adb5432&hm=bf796f9d1c13a7394f6ce01f2c2eb8fe08fe75cd44352e45223ac1c0337ed33b&#left)
 
 
-(ii) ；i am friendly! jokes a lot. and i also playing other games such as Pony town, Reverse1999, Roblox, CRK, CROB, Minecraft, animal crossimg. (feel free to add me if you want)
+(ii) ；i am friendly! jokes a lot. and i also playing other games such as Reverse1999, Roblox, CRK, CROB, Minecraft, animal crossimg. (feel free to add me if you want)
 
 
 (iii) ；**fandoms ? -** invincible, Supernatural, Tge Boys, Ghost in the Cell, Guts and Blackpowder/Napowars, Call of duty bo, co, mw, x-men, tf2, reverse1999, rdr2, House MD, Block Tales and more. 
