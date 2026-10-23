@@ -7,7 +7,8 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165490917015632/tumblr_f48e257ca72d20d1c7cca2ce2395cf22_d707be39_2048.png?ex=6adca2cf&is=6adb514f&hm=afc58db84dcee3381a465707d1ef7b4a133053a0bbf66752d58ff9c271585088&)
 
 *𝄚𝅦𝄚𝄞 non-binary & fluid — infp-t ／ intp
-*ID/ENG with bad grammar*
+*ID/ENG with bad grammar* ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563168592621731840/tumblr_9ca805b216506270df53ea9a23c80b28_6957fa96_100.gif?ex=6adca5b2&is=6adb5432&hm=bf796f9d1c13a7394f6ce01f2c2eb8fe08fe75cd44352e45223ac1c0337ed33b&#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563168593028456499/tumblr_5edde66e2d7991fd01d3d9a65e522392_fdacedd7_75.gif?ex=6adca5b2&is=6adb5432&hm=c786c7887eee461cf48c5e750837c99e1b8e2a2bfc8dd8fd6d36a800e1e2d0bd&#right)
+
 
 
 (i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user have fragile heart, split personality, avoidant & anger-issue.**
@@ -19,8 +20,8 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 
 (iii) ；**fandoms ? -** invincible, Supernatural, Tge Boys, Ghost in the Cell, Guts and Blackpowder/Napowars, Call of duty bo, co, mw, x-men, tf2, reverse1999, rdr2, House MD, Block Tales and more. 
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165491491504220/tumblr_c7b23e04cf40b6ec3fbfef7a85988ff1_41168c02_1280.png?ex=6adca2cf&is=6adb514f&hm=870bfbd3fe8d4437b84007961ad7988db6173de2b83e6304eaf02e2d97f87cfa&)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563170507657052250/tumblr_47abe7de7f695f6eabe2e5571404f0c3_f8778e65_100.png?ex=6adca77b&is=6adb55fb&hm=2b6eae26ee54fe369cefca1685c38f6f8bfed4645143c89730eaa5b660c49825&)
 
-![Alt Tag](https://www.tumblr.com/search/buttons?src=typed_query)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165491491504220/tumblr_c7b23e04cf40b6ec3fbfef7a85988ff1_41168c02_1280.png?ex=6adca2cf&is=6adb514f&hm=870bfbd3fe8d4437b84007961ad7988db6173de2b83e6304eaf02e2d97f87cfa&) @F ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563170507996663940/tumblr_49d942d916bd0deed7a5ed1a7b4fe1d9_fe2a259c_100.gif?ex=6adca77b&is=6adb55fb&hm=2f889bb9452e239dff1f0e3d039f8720ce9d8379f2b590e51e6a834edf94b48f&)
 
-_creds: Creatorhangar on tumblr_
+_creds: Creatorhangar, Lavendergalactic on tumblr_
