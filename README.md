@@ -1,15 +1,14 @@
-![Alt Tag](https://www.tumblr.com/search/fennec%20fox%20gif?src=typed_query.gif)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563163675336900728/fennec-fox-wild-animal.gif?ex=6afcedde&is=6afb9c5e&hm=fd6823f22a4dae8c093420565c707b73882fa8f766e57414a612f4208ffbbb47&.gif)
 
 *"Speeding through the night, maybe you’ll outrun the morning"*
 
 _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mkkvrz?igsh=MWt2M2VzaDh4ZmJicQ==) . [ATABOOK](https://mikrowave.atabook.org/)**_
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165490917015632/tumblr_f48e257ca72d20d1c7cca2ce2395cf22_d707be39_2048.png?ex=6adca2cf&is=6adb514f&hm=afc58db84dcee3381a465707d1ef7b4a133053a0bbf66752d58ff9c271585088&)
-
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165490917015632/tumblr_f48e257ca72d20d1c7cca2ce2395cf22_d707be39_2048.png?ex=6afcef8f&is=6afb9e0f&hm=3538a0b84d2b75e9e555e471caf30f3f1d986fcdeeac535ee765d0e8e7c213a0&)
 *𝄚𝅦𝄚𝄞 non-binary & fluid — infp-t ／ intp
 *ID/ENG with bad grammar*
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563172609322123436/tumblr_2dce2b8e0604b02fd3e544bb2faf59d0_33092d26_75.gif?ex=6adca970&is=6adb57f0&hm=078a5aadf441f107d81c78fa38784a2beef1ba438d1e5a9a62dfbae86976db48&)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563172609322123436/tumblr_2dce2b8e0604b02fd3e544bb2faf59d0_33092d26_75.gif?ex=6afcf630&is=6afba4b0&hm=ff0396e7a27e6778110f3df832cf5ee26ae8594e13ba6d77c3aa86029f786760&)
 
 (i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user have fragile heart, split personality, avoidant & anger-issue.**
 **(strictly DNi + block if you're basic criteria, 14- / immature minors and a person who cannot respect/my boundaries breaker).**
@@ -19,8 +18,6 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 
 (iii) ；**fandoms ? -** invincible, Supernatural, Tge Boys, Ghost in the Cell, Guts and Blackpowder/Napowars, Call of duty bo, co, mw, x-men, tf2, reverse1999, rdr2, House MD, Block Tales and more. 
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563170507657052250/tumblr_47abe7de7f695f6eabe2e5571404f0c3_f8778e65_100.png?ex=6adca77b&is=6adb55fb&hm=2b6eae26ee54fe369cefca1685c38f6f8bfed4645143c89730eaa5b660c49825&) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563170507996663940/tumblr_49d942d916bd0deed7a5ed1a7b4fe1d9_fe2a259c_100.gif?ex=6adca77b&is=6adb55fb&hm=2f889bb9452e239dff1f0e3d039f8720ce9d8379f2b590e51e6a834edf94b48f&)
-
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165491491504220/tumblr_c7b23e04cf40b6ec3fbfef7a85988ff1_41168c02_1280.png?ex=6adca2cf&is=6adb514f&hm=870bfbd3fe8d4437b84007961ad7988db6173de2b83e6304eaf02e2d97f87cfa&)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563170507657052250/tumblr_47abe7de7f695f6eabe2e5571404f0c3_f8778e65_100.png?ex=6afcf43b&is=6afba2bb&hm=415d217238b3107223e0a973c5a458be800a629cb7fbe1204690edb31f151556&#left) ![Alt Tag](https://discord.com/channels/@me/1525061299963297852/1563170508395257856#right)
 
 _creds: Creatorhangar, Lavendergalactic on tumblr_
