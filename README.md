@@ -5,7 +5,7 @@
 _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mkkvrz?igsh=MWt2M2VzaDh4ZmJicQ==) . [ATABOOK](https://mikrowave.atabook.org/)**_
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165490917015632/tumblr_f48e257ca72d20d1c7cca2ce2395cf22_d707be39_2048.png?ex=6afcef8f&is=6afb9e0f&hm=3538a0b84d2b75e9e555e471caf30f3f1d986fcdeeac535ee765d0e8e7c213a0&)
-*𝄚𝅦𝄚𝄞 non-binary & fluid — infp-t ／ intp
+*𝄚𝅦𝄚𝄞 genderfluid — infp-t ／ intp – bear/omnisexual/grayromance
 *ID/ENG with bad grammar*
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563172609322123436/tumblr_2dce2b8e0604b02fd3e544bb2faf59d0_33092d26_75.gif?ex=6afcf630&is=6afba4b0&hm=ff0396e7a27e6778110f3df832cf5ee26ae8594e13ba6d77c3aa86029f786760&)
