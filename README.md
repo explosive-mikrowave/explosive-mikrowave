@@ -1,4 +1,4 @@
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563163675336900728/fennec-fox-wild-animal.gif?ex=6afcedde&is=6afb9c5e&hm=fd6823f22a4dae8c093420565c707b73882fa8f766e57414a612f4208ffbbb47&.gif)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1572153066097082438/tumblr_c9edec0a11976a0caabcf46973cb1994_2545c963_540.gif?ex=6afd5524&is=6afc03a4&hm=80dc414d72b77c5fb8bfd90aeae00d78e2932af26bc136c2df33b2d3bb896b34&.gif)
 
 *"Speeding through the night, maybe you’ll outrun the morning"*
 
