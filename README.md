@@ -1,4 +1,4 @@
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563163675336900728/fennec-fox-wild-animal.gif?ex=6adca11e&is=6adb4f9e&hm=9354bcb4f9017e8782573c5eafeef54e6b66ff3279720cad3ca2a6afe60eec61&.gif)
+![Alt Tag](https://www.tumblr.com/search/fennec%20fox%20gif?src=typed_query.gif)
 
 *"Speeding through the night, maybe you’ll outrun the morning"*
 
