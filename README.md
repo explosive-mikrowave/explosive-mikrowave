@@ -18,6 +18,8 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 
 (iii) ；**fandoms ? -** invincible, Supernatural, Tge Boys, Ghost in the Cell, Guts and Blackpowder/Napowars, Call of duty bo, co, mw, x-men, tf2, reverse1999, rdr2, House MD, Block Tales and more. 
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563170507657052250/tumblr_47abe7de7f695f6eabe2e5571404f0c3_f8778e65_100.png?ex=6afcf43b&is=6afba2bb&hm=415d217238b3107223e0a973c5a458be800a629cb7fbe1204690edb31f151556&#left) ![Alt Tag](https://discord.com/channels/@me/1525061299963297852/1563170508395257856#right)
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563170507657052250/tumblr_47abe7de7f695f6eabe2e5571404f0c3_f8778e65_100.png?ex=6afcf43b&is=6afba2bb&hm=415d217238b3107223e0a973c5a458be800a629cb7fbe1204690edb31f151556&#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563170507996663940/tumblr_49d942d916bd0deed7a5ed1a7b4fe1d9_fe2a259c_100.gif?ex=6afcf43b&is=6afba2bb&hm=a5da5ed963cff1478c541b24707fac02ed20e68e505d7a0ab4e841d7d823fc4a&#right)
+
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1563165491491504220/tumblr_c7b23e04cf40b6ec3fbfef7a85988ff1_41168c02_1280.png?ex=6afcef8f&is=6afb9e0f&hm=5d61ea89a933f5e86c0f9d32760cbda5efe7d7bf0edb31bb2b4998c00c5e8478&)
 
 _creds: Creatorhangar, Lavendergalactic on tumblr_
