@@ -9,9 +9,10 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 *ID/ENG with bad grammar*
 
 ![Alt Tag](https://files.catbox.moe/xqvbx0.gif)
-
+![Alt Tag](https://files.catbox.moe/isth4w.gif)
 (i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user have fragile heart, split personality, avoidant & anger-issue.**
-**(strictly DNi + block if you're basic criteria, 14- / immature minors and a person who cannot respect/my boundaries breaker).**
+**(strictly DNi + block if you're basic criteria, 14- / immature minors and a person who cannot respect/my boundaries breaker).** ![Alt Tag](https://files.catbox.moe/ioyhqv.gif)
+
 
 (ii) ；i am friendly! jokes a lot. and i also playing other games such as Reverse1999, Roblox, CRK, CROB, Minecraft, animal crossimg. (feel free to add me if you want)
 
@@ -21,4 +22,4 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 ![Alt Tag](https://files.catbox.moe/1aqwqr.gif#left) **Loving My Husband** ![Alt Tag](https://files.catbox.moe/isth4w.gif#right)
 
 ![Alt Tag](https://files.catbox.moe/oqhfqf.png)
-_creds: Creatorhangar, Lavendergalactic on tumblr_
+_creds: Creatorhangar, Lavendergalactic , ROTTENDECOMP on tumblr_
