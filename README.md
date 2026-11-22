@@ -18,7 +18,7 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 
 (iii) ；**fandoms ? -** invincible, Supernatural, The Boys, Ghost in the Cell, Guts and Blackpowder/Napowars, Call of duty bo, co, mw, x-men, tf2, reverse1999, rdr2, House MD, Block Tales and more. 
 
-![Alt Tag](https://files.catbox.moe/vmr67b.pnj#left) ![Alt Tag](https://files.catbox.moe/1aqwqr.gif#right)
+![Alt Tag](https://files.catbox.moe/d7d6o5.png) ![Alt Tag](https://files.catbox.moe/1aqwqr.gif#right)
 
 ![Alt Tag](https://files.catbox.moe/oqhfqf.png)
 _creds: Creatorhangar, Lavendergalactic on tumblr_
