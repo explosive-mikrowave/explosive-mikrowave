@@ -14,7 +14,7 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 **(strictly DNi + block if you're basic criteria, 14- / immature minors and a person who cannot respect/my boundaries breaker).** 
 
 
-![Alt Tag](https://files.catbox.moe/ioyhqv.gif) ![Alt Tag](https://files.catbox.moe/mi89t5.pnj)
+![Alt Tag](https://files.catbox.moe/ioyhqv.gif)
 
 
 (ii) ；i am friendly! jokes a lot. and i also playing other games such as Reverse1999, Roblox, CRK, CROB, Minecraft, animal crossimg. (feel free to add me if you want)
