@@ -10,6 +10,7 @@ _**[STRAWPAGE](https://mkkvrz.straw.page) . [INSTA](https://www.instagram.com/mk
 
 ![Alt Tag](https://files.catbox.moe/xqvbx0.gif)
 ![Alt Tag](https://files.catbox.moe/m5qfuf.gif)
+
 (i) ；**Warnings - this user is love to say a sarcastic words/jokes, saying a certain curse words in some ways, and having a slow-brain to process something even forgetful. This user have fragile heart, split personality, avoidant & anger-issue.**
 **(strictly DNi + block if you're basic criteria, 14- / immature minors and a person who cannot respect/my boundaries breaker).** 
 
